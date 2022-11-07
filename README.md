@@ -1,1 +1,1 @@
-hello world
+AC⚡️DC
